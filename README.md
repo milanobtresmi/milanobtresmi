@@ -1,2 +1,2 @@
 MİLANOBET RESMİ GİRİŞ ADRESİ İÇİN HEMEN AŞAĞIDAN LİNKE TIKLAYARAK GÜNCELLENEN GİRİŞ ADRESİNE ULAŞIN.
-<h1><a href="http://gg.gg/1bz5eb" title="MİLANOBET GİRİŞ YAP">MİLANOBET GİRİŞ YAP</a></h1>
+<h1><a href="https://n9.cl/5rpb7" title="MİLANOBET GİRİŞ YAP">MİLANOBET GİRİŞ YAP</a></h1>
